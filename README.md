@@ -8,7 +8,7 @@ có ích và giúp mọi người học hỏi được nhiều thì donate ủng
 ## Thông tin donate
 ## BANK
 7778889992001 / MB BANK / NGUYEN DAC TAI
-## BANK MOMO 
+## MOMO 
 0393197726 / NGUYEN DAC TAI
 
 ## Getting Started
